@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning climatech start-up
 - 💞️ I’m looking to collaborate on ai
 - 📫 How to reach me https://www.linkedin.com/in/ivano-aloisi-43119495/
-- 😄 Pronouns: ...
+- 😄 Pronouns: NANO
 - ⚡ Fun fact: funny person generally
 
 <!---
